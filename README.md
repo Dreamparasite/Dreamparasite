@@ -6,7 +6,7 @@
 
 
 ![image description](https://64.media.tumblr.com/a1369a41f0ec777c7c3cdc08c110ee23/596c5a1eef18e2b3-c6/s250x400/63c91651a9f64d6e490f6ea1b4b18fff1a851aed.gifv)    ![image description](https://64.media.tumblr.com/7aa9cd08eb562b590c8a00918b90ede3/1f70b52391bf3126-2f/s75x75_c1/ae0ccc6d223366ca86c84e5454fec849ee0fcef1.pnj) : { generally talkative guys and people who share same interests!!! }
-![image description](https://64.media.tumblr.com/72750af164f9cd79b305497949a9d912/1f70b52391bf3126-3a/s75x75_c1/966559e49c45f9df2ddb33f26b028c1be662158c.pnj) : { young people who dont make sense pro shippers pedos mean people and generally weird people }
+![image description](https://64.media.tumblr.com/72750af164f9cd79b305497949a9d912/1f70b52391bf3126-3a/s75x75_c1/966559e49c45f9df2ddb33f26b028c1be662158c.pnj) : { young people who dont make sense pro shippers pedos mean people and generally weird people } check my rentry !! https://rentry.co/uqiq7q36
 <p align="center">
 
 
