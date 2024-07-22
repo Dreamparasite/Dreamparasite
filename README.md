@@ -7,7 +7,7 @@
 
 
 <p align="center">
-  https://rentry.co/uqiq7q36 -- https://follyiswatchingu.straw.page
+  https://rentry.co/uqiq7q36 -- remaking straw page
 </p>
  
 
